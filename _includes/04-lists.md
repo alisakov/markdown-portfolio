@@ -11,6 +11,6 @@ My favorite things are:
   * Cookies with tea :tea: :cookie:
 * Writing Code :computer:
 * Making Art :art:
-  * Black & White by pencil
+  * Black and White by pencil
   * Digital
   * Pro-Markers
